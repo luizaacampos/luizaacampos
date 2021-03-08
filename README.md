@@ -6,4 +6,4 @@
 
 - 📫 How to reach me: https://www.linkedin.com/in/luiza-de-almeida-campos/
 
-- ⚡ Fun fact: I have a biology degree :microscope:
+- ⚡ Fun fact: I have a bachelor's degree in biology :microscope:
